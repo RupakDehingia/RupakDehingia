@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RupakDehingia
+- 👋 Hi, I’m Rupak Dehingia
 - 👀 I’m interested in designing web pages or sites, giving security to sites, travelling the world with my Life partner, 
 - 🌱 I’m currently studying MCA from Tezpur University
 - 💞️ Just stay happy or sad, I really don't care, do not disturb me coz no-one is going to get a single respond from me.
